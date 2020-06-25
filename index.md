@@ -7,3 +7,5 @@ Together with her friends Thomas and Annika she stands many adventures.
 * Super power
 * Hair styling
 * Clothes
+
+> Plutimikation
