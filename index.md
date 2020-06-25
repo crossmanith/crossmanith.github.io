@@ -9,3 +9,5 @@ Together with her friends Thomas and Annika she stands many adventures.
 * Clothes
 
 > Plutimikation
+
+<img src="https://openclipart.org/image/800px/svg_to_png/194462/pippi.png">
